@@ -1,0 +1,1 @@
+# GlobalSolution2semestre_IA_2024
